@@ -1,0 +1,90 @@
+# Tommy february6 – SPACEY COWGIRL
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I'm in a rocket heading
+into space
+I see the cosmic rays
+You know the outlaws
+won't get away
+A planet
+I have never seen before
+They're gonna hit the floor
+And now I just saved another day
+Riding on a comet tail
+into a bright red solar flare
+I wanna take you 'round
+in orbit, babe,
+we're goin' far beyond the air
+somewhere
+Just buckle up,
+I'll take you to another
+wo-o-orld
+I am the one and only
+spacey cowgirl
+Galaxies away I'm gearin' up
+Satellites are on your position
+Ride the Milky Way,
+I'm catchin' up
+And now
+I'm counting down until ignition
+Lasers ready now, you can't run
+Desperados try to escape me
+Hold on steady now, I got one
+I close the cases using
+my astronomy
+＜♪＞
+They'll try to hide
+behind a dark eclipse
+Well they can read my lips
+I don't give up 'til
+I hunt you down
+I travel out among
+the shootings stars
+It's really not that far
+Look at the meteors all around
+Light years past the supernova
+there's a nebula saloon
+Before I head out
+on another bounty,
+have a corona on the moon,
+high noon
+Just buckle up,
+I'll take you to another
+wo-o-orld
+I am the one and only
+spacey cowgirl
+Galaxies away I'm gearin' up
+Satellites are on your position
+Ride the Milky Way,
+I'm catchin' up
+And now
+I'm counting down until ignition
+Lasers ready now, you can't run
+Desperados try to escape me
+Hold on steady now, I got one
+I close the cases using
+my astronomy
+＜♪＞
+This cowgirl won't be denied
+I'm droppin' out of the sky
+Six-shooter ray guns in hand
+Galactic rodeo
+This cowgirl won't be denied
+I'm droppin' out of the sky
+Six-shooter ray guns in hand
+Galactic rodeo
+＜♪＞
+Galaxies away I'm gearin' up
+Satellites are on your position
+Ride the Milky Way,
+I'm catchin' up
+And now
+I'm counting down until ignition
+Lasers ready now, you can't run
+Desperados try to escape me
+Hold on steady now, I got one
+I close the cases using
+my astronomy
+```
